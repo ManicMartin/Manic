@@ -1,0 +1,2 @@
+# Manic
+developer and designer
